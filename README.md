@@ -1,5 +1,4 @@
-# FILL IN INFO ABOUT YOUR GAME HERE. 
+# Hiiiiiiiii, this is a github repo test, so far???
 
-DO NOT LEAVE IT LIKE THIS!!!
+I'm writting nosense stuff right now, maybe add more info later......
 
-Please? Please, give me content. I'm begging you. It's not that hard. Thanks.
